@@ -1,1 +1,1 @@
-# Veritaban-
+# Veritabani
